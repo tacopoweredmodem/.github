@@ -6,7 +6,7 @@ Remember when new technology was *exciting* and not scary?
 
 Remember when you couldn't wait to see what it could do, instead of wondering what it might do to you?
 
-**Well, we want that feeling back too**
+**Well, we want that feeling back too**.
 
 **Taco Powered Modem** believes technology is at its best when it disappears, when it just works by quietly helping everyday people get more out of life without asking them to become experts or overwhelmed with tools and products.
 
