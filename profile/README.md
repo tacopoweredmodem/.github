@@ -2,7 +2,7 @@
 
 # Computers can be fun, or at the very least, worry-free
 
-Remember when new technology was *exciting* — not scary?
+Remember when new technology was *exciting* and not scary?
 
 Remember when you couldn't wait to see what it could do, instead of wondering what it might do to you?
 
