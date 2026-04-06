@@ -10,4 +10,4 @@ When you couldn't wait to see what it could do instead of wondering what it migh
 
 We're here to make technology easy, fun, and accessible. Technology for everybody, again.
 
-***That's it. That's the whole thing.***
+***That's it. That's the shtick.***
