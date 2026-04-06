@@ -4,10 +4,12 @@
 
 Remember when new technology was *exciting* — not scary?
 
-Remember when you couldn't wait to see what it could do, instead of wondering what it might do to you? **We want that feeling back.**
+Remember when you couldn't wait to see what it could do, instead of wondering what it might do to you?
 
-**Taco Powered Modem** believes technology is best when it disappears — when it just works, quietly helping everyday people get more out of life without asking them to become experts or overwhelmed with tools and products.
+**Well, we want that feeling back too**
 
-We're here to make technology easy, fun, and accessible. Technology for everybody, again.
+**Taco Powered Modem** believes technology is at its best when it disappears, when it just works by quietly helping everyday people get more out of life without asking them to become experts or overwhelmed with tools and products.
+
+We're here to make computing easy, fun, and accessible. Technology for everybody, again.
 
 ***That's it. That's the shtick.***
